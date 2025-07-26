@@ -71,7 +71,7 @@ Promoting **screen-free weekends** to break the loop of social media-driven cons
 
 ## 📸 Proof of Work
 
-- [Instagram Post Acknowledging Winners]([https://www.instagram.com/p/your-proof-link](https://www.instagram.com/p/C9KFoblP91h/?igsh=MW1qa2diNWZxYmhuOA==)) 
+- Instagram Post Acknowledging Winners- https://www.instagram.com/p/your-proof-link](https://www.instagram.com/p/C9KFoblP91h/?igsh=MW1qa2diNWZxYmhuOA== 
 - Certificates pending from Dean of Student Welfare (DSW)
 
 ---
